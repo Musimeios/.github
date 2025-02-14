@@ -4,4 +4,4 @@ Musimeios é uma empresa especializada em conteúdo de multimédia e em serviço
 
 ### Contact us
 
-https://musimeios.eu | tel:+351244031800
+https://musimeios.eu | +351244031800
